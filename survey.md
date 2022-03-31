@@ -1,5 +1,5 @@
-Favorite color: 
-Favorite food: 
-Favorite musician/band: 
-Favorite movie: 
-Requested grade in the course: 
+Favorite color: Facebook blue
+Favorite food: Matbucha
+Favorite musician/band:nunu 
+Favorite movie: well, the first rule is that i can't talk about it 
+Requested grade in the course: 100 
